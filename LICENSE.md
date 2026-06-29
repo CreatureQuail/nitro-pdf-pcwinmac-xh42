@@ -1,4 +1,4 @@
-# 
+# Código abierto Nitro PDF extensiones para Mac OS | Gratuito Nitro PDF extensiones para PC Windows. Con preparación de impuestos y gestión de nóminas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
